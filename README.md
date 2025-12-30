@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="Gif-1.gif"/>
+</p>
+
 <p align="center"><a href="https://belayarus.atabook.org/">Sign Book.</a>
 
 <p align="center">
