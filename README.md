@@ -3,7 +3,7 @@
 </p>
 
 <details align="center"> 
-<summary>$\color{lightblue}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>  
+<summary>$\color{white}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>  
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 $\color{lightblue}{About \space Me.}$ 
