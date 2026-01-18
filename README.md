@@ -3,7 +3,7 @@
 </p>
 
 <details align="center"> 
-<summary>$\color{white}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>  
+<summary>$\color{white}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 $\color{lightblue}{About \space Me.}$ 
@@ -13,6 +13,8 @@ $\color{lightblue}{About \space Me.}$
 ꒱ㅤ16 years old (turning 17 this April)
 
 ꒱ㅤHe / She
+
+ᛝ ── ⑅ ♡ ⑅ ── ᛝ
 
 $\color{lightblue}{Ponytown.}$ 
 
