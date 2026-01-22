@@ -24,7 +24,7 @@ $\color{lightblue}{Ponytown.}$
 
 $\color{lightblue}{Favourite.⠀:)}$ 
 
-꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia)
+꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia) (Also interested in Kyivan Rus)
 
 ꒱ㅤSerbia (The actual country itself, Countryballs, Countryhumans and Hetalia)
 
